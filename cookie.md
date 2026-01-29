@@ -9,8 +9,8 @@
 * ½ teaspoon baking powder
 * 1 cup butter, softened
 * 1 ½ cups white sugar
-* 1 large egg
-* 1 teaspoon vanilla extract
+* 2 large egg
+* 2 teaspoon vanilla extract
 
 
 
